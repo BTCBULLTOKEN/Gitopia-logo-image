@@ -1,0 +1,1 @@
+# Gitopia-logo-image
